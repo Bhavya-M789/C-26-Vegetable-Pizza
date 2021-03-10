@@ -1,0 +1,11 @@
+#Ingredients List 
+- 5/2 cups lukewarm water
+- 2 teaspoons active yeast
+- 1 teaspoon sugar
+- 7 cups all purpose flour
+- 6 tablespoons extra virgin olive oil 
+- 3/2 tablespoons salt
+- Extra olive oil to cover dough to rest
+- Tomato Sauce, as much desired
+- Mozzarella Cheese, as much desired 
+- Toppings, any as desired (Ex. Onion, Bell Peppers, Jalapeños, Basil, etc.)
