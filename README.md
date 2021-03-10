@@ -5,3 +5,4 @@ Link to the ingredients :
 https://github.com/Bhavya-M789/C-26-Vegetable-Pizza/blob/main/Ingredients.md
 
 Link to the recipe : 
+https://github.com/Bhavya-M789/C-26-Vegetable-Pizza/blob/main/recipe.md
